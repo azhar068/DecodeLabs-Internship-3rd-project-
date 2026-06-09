@@ -1,1 +1,1 @@
-# DecodeLabs-Internship-3nd-project-
+# DecodeLabs-Internship-3rd-project-
